@@ -1,0 +1,1 @@
+# programlama_temelleri_vize
